@@ -1,6 +1,7 @@
-## AGE动漫 · 最新网址（2025.06.30 最后编辑时间）
-
-> 最新域名：[https://www.agedm.vip](https://www.agedm.vip?ref=github)
+## AGE动漫 · 最新网址（2025.09.12 最后编辑时间）
+> 最新域名：[https://www.agedm.io](https://www.agedm.io?ref=github)
+> 
+> ~~弃用域名：[https://www.agedm.vip](https://www.agedm.vip?ref=github)（已阵亡 o(╥﹏╥)o）~~
 > 
 > ~~弃用域名：[https://www.agedm.live](https://www.agedm.live?ref=github)（已阵亡 o(╥﹏╥)o）~~
 >
